@@ -1,0 +1,2 @@
+# premium-skein-001-skein-basket-oval-base-constru
+Tired of losing track of which skein you used for which row of your oval basket base? This Notion template ends the guesswork and keeps your yarn projects organized.  The Skein Basket Oval Base Construction Tracker is the only Notion template designed specifically for tracking oval basket construction from start to finish, managing skeins, colors,
